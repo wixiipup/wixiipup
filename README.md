@@ -1,8 +1,9 @@
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312g5ndmcem6ygck7amv3iv66xkm&cover_image=true&theme=novatorem&show_offline=false&background_color=7a3914&interchange=true&profanity=false&hide_remaster=true&bar_color=ffffff&bar_color_cover=false">
-  </a>
-</p>
 
+___
+$\color{blue}{\text{DNI: basic dni criteria, -12 n 30+, doubles}}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤsp wip
+$\color{blue}{\text{4 MOOTS: if we dont talk for a month}}$ $\color{blue}{\text{or two, i WILL unfriend u n block u coz}}$ $\color{blue}{\text{why r we even friends when we dont even}}$ $\color{blue}{\text{talk or hang out...?}}$
+
+$\color{blue}{\text{NO i dont yume w ej, i yume w monika}}$
+
+$\color{blue}{\text{BYI: i may b dry n sound rude, im js not}}$ $\color{blue}{\text{in the mood to talk i promise...}}$
