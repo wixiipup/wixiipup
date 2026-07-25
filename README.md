@@ -5,4 +5,4 @@
 </p>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage](https://wixiipuppys.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ strawpage wip...
