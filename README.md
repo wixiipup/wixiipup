@@ -1,5 +1,5 @@
 ㅤㅤㅤ[my tt](https://tiktok.com/@wixiipup)ㅤㅤㅤㅤㅤ
-editing straw
+ㅤ[my straw](https://wixiipuppys.straw.page)
 
 <img width="300" height="200" alt="Image" src="https://github.com/user-attachments/assets/c9de7ddb-aad7-4fb6-bfe8-b296cc6c7a84" />
 
