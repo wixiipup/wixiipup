@@ -1,4 +1,3 @@
-<img width="400" height="100" alt="Image" src="https://github.com/user-attachments/assets/06ad07d4-1790-4435-bcb5-0d1b19651d2a" />
 
 
 $$\color{#ab0000}\text{seo / mioㅤㅤㅤㅤㅤ13 yrs old}$$
