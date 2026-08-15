@@ -1,5 +1,5 @@
-ㅤㅤㅤ[tiktok](https://tiktok.com/@wixiipup)
-ㅤㅤㅤㅤㅤ[strawpage](https://wixiipuppys.straw.page)
+ㅤㅤㅤㅤ[tiktok](https://tiktok.com/@wixiipup)
+ㅤㅤㅤㅤ [straw](https://wixiipuppys.straw.page)
 
 <img width="1470" height="1088" alt="Image" src="https://github.com/user-attachments/assets/f53a348e-9b9c-4ba0-b9b0-9212670649d5" />
 ㅤㅤㅤㅤㅤdream girl wallahi
