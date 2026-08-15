@@ -1,5 +1,4 @@
 ㅤㅤㅤㅤ[tiktok](https://tiktok.com/@wixiipup)
 ㅤㅤㅤㅤ straw wip
 
-<img width="1470" height="1088" alt="Image" src="https://github.com/user-attachments/assets/f53a348e-9b9c-4ba0-b9b0-9212670649d5" />
-ㅤㅤㅤㅤㅤdream girl wallahi
+<img width="735" height="392" alt="Image" src="https://github.com/user-attachments/assets/43ecf539-b3c0-491e-9d0a-5112da788d14" />
