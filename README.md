@@ -1,3 +1,5 @@
+<img width="1000" height="206" alt="Image" src="https://github.com/user-attachments/assets/2a3b9165-7747-465a-b616-0e632ea92607" />
+
 <img width="700" height="500" alt="Image" src="https://github.com/user-attachments/assets/a9d73474-ae3f-4fc2-91d7-57fe52136e1f" />
 
 
@@ -17,4 +19,4 @@ $$\color{#52307c}\text{basic dni criteriaㅤㅤdni doubles}$$
 
 $$\color{#663a82}\text{demifemㅤlesbianㅤrecipromantic}$$
 
-<img width="700" height="400" alt="Image" src="https://github.com/user-attachments/assets/3cf01bbd-bc58-493b-9aab-32483587287e" />
+<img width="1000" height="206" alt="Image" src="https://github.com/user-attachments/assets/2419b3e3-0000-49df-ab98-61d62ce93319" />
