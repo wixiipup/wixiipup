@@ -1,18 +1,20 @@
-<img width="500" height="169" alt="Image" src="https://github.com/user-attachments/assets/df13e20f-ed6e-4cc1-a8c1-1e2a0672e13c" />
+<img width="700" height="500" alt="Image" src="https://github.com/user-attachments/assets/a9d73474-ae3f-4fc2-91d7-57fe52136e1f" />
 
 
-$$\color{#ab0000}\text{she/they/them}$$
+$$\color{#663a82}\text{she/they/them}$$
 
-$$\color{#ab0000}\text{seo / mioㅤㅤㅤㅤㅤ13 yrs old}$$
+$$\color{#52307c}\text{seo / mioㅤㅤㅤㅤㅤ13 yrs old}$$
 
-$$\color{#ab0000}\text{i LOVE claida, aeon shippers iwec}$$
+$$\color{#663a82}\text{c+hㅤw2iㅤalways}$$
 
-$$\color{#ab0000}\text{f/os♡ㅤMonikaㅤ MidoriㅤGerie}$$ $$\color{#ab0000}\text{ㅤDDLCㅤYANDERE TROUBLEㅤSTELLA}$$ $$\color{#ab0000}\text{SORA . . . .}$$
+$$\color{#52307c}\text{MonikaㅤMidoriㅤGerie'sㅤGF}$$
 
-$$\color{#ab0000}\text{basic dni criteriaㅤㅤdni doubles}$$
+<img width="700" height="500" alt="Image" src="https://github.com/user-attachments/assets/349d99d9-785d-4a66-aa4f-3b5ae16c08d1" />
 
-$$\color{#ab0000}\text{w2iㅤc+hㅤalways}$$
+$$\color{#663a82}\text{iㅤㅤloveㅤㅤsayuri}$$
 
-$$\color{#ab0000}\text{demifemㅤlesbianㅤrecipromantic}$$
+$$\color{#52307c}\text{basic dni criteriaㅤㅤdni doubles}$$
 
-<img width="800" height="700" alt="Image" src="https://github.com/user-attachments/assets/3fa9af63-53a7-4a41-8828-7b5c15b2f749" />
+$$\color{#663a82}\text{demifemㅤlesbianㅤrecipromantic}$$
+
+<img width="700" height="400" alt="Image" src="https://github.com/user-attachments/assets/3cf01bbd-bc58-493b-9aab-32483587287e" />
