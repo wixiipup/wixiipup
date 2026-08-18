@@ -13,6 +13,6 @@ $$\color{#ab0000}\text{basic dni criteriaㅤㅤdni doubles}$$
 
 $$\color{#ab0000}\text{w2iㅤc+hㅤalways}$$
 
-$$\color{#ab0000}\text{recipromanticㅤdemifemㅤlesbian}$$
+$$\color{#ab0000}\text{demifemㅤlesbianㅤrecipromantic}$$
 
 <img width="800" height="700" alt="Image" src="https://github.com/user-attachments/assets/3fa9af63-53a7-4a41-8828-7b5c15b2f749" />
