@@ -19,4 +19,4 @@ $$\color{#52307c}\text{basic dni criteriaㅤㅤdni doubles}$$
 
 $$\color{#663a82}\text{demifemㅤlesbianㅤrecipromantic}$$
 
-<img width="1000" height="200" alt="Image" src="https://github.com/user-attachments/assets/151dfa56-e882-4298-aa8b-abcbf9e57ff7" />
+<img width="648" height="77" alt="Image" src="https://github.com/user-attachments/assets/caf8b2fd-507f-4369-a2cf-4318fdefa413" />
