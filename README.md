@@ -13,7 +13,7 @@ $$\color{#52307c}\text{MonikaㅤMidoriㅤGerie'sㅤGF}$$
 
 <img width="700" height="500" alt="Image" src="https://github.com/user-attachments/assets/349d99d9-785d-4a66-aa4f-3b5ae16c08d1" />
 
-$$\color{#663a82}\text{iㅤㅤloveㅤㅤsayuri}$$
+$$\color{#663a82}\text{i love sayuri}$$
 
 $$\color{#52307c}\text{basic dni criteriaㅤㅤdni doubles}$$
 
