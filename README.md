@@ -1,22 +1,8 @@
-<img width="1000" height="200" alt="Image" src="https://github.com/user-attachments/assets/2a3b9165-7747-465a-b616-0e632ea92607" />
+<img width="1024" height="342" alt="Image" src="https://github.com/user-attachments/assets/fc26c060-8bd5-486c-bffa-b2ea5a788f93" />
+<img width="640" height="524" alt="Image" src="https://github.com/user-attachments/assets/a8d579f0-85c8-48f2-9b92-892c9d57e31a" />
 
-<img width="700" height="500" alt="Image" src="https://github.com/user-attachments/assets/a9d73474-ae3f-4fc2-91d7-57fe52136e1f" />
+$$\color{#e7e7da}\text{dni 
+ㅤnatsuriㅤnㅤdoubles}$$
+$$\color{#e7e7da}\text{c+hㅤw2iㅤalways}$$
 
-
-$$\color{#663a82}\text{she/they/them}$$
-
-$$\color{#52307c}\text{seo / mioㅤㅤㅤㅤㅤ13 yrs old}$$
-
-$$\color{#663a82}\text{c+hㅤw2iㅤalways}$$
-
-$$\color{#52307c}\text{MonikaㅤMidoriㅤGerie'sㅤGF}$$
-
-<img width="700" height="500" alt="Image" src="https://github.com/user-attachments/assets/349d99d9-785d-4a66-aa4f-3b5ae16c08d1" />
-
-$$\color{#663a82}\text{i love sayuri}$$
-
-$$\color{#52307c}\text{basic dni criteriaㅤㅤdni doubles}$$
-
-$$\color{#663a82}\text{demifemㅤlesbianㅤrecipromantic}$$
-
-<img width="648" height="77" alt="Image" src="https://github.com/user-attachments/assets/caf8b2fd-507f-4369-a2cf-4318fdefa413" />
+<img width="1802" height="1152" alt="Image" src="https://github.com/user-attachments/assets/a48ad58c-6634-4238-886f-ce7a477088f4" />
