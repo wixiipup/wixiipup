@@ -7,7 +7,7 @@ $$\color{#e7e7da}\text{c+hㅤw2iㅤalways}$$
 
 <img width="1802" height="1152" alt="Image" src="https://github.com/user-attachments/assets/a48ad58c-6634-4238-886f-ce7a477088f4" />
 
-ㅤㅤㅤㅤ[tiktok](tiktok.com/@wixiipup)
-$$\color{#e7e7da}\text{ㅤㅤstraw is in wip}$$
+ㅤㅤㅤㅤㅤ[tiktok](tiktok.com/@wixiipup)
+$$\color{#e7e7da}\text{ㅤㅤstraw wip}$$
 
 <img width="1024" height="342" alt="Image" src="https://github.com/user-attachments/assets/d02c139d-8e27-4e41-8c2e-2e66dab2bf4e" />
