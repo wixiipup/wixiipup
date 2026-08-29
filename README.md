@@ -1,10 +1,12 @@
-ㅤㅤㅤㅤㅤㅤㅤ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fwixiipup%2Fwixiipup&label=souls&labelColor=%23393352&countColor=%23eabbe5&style=plastic)
+ㅤㅤㅤㅤㅤㅤ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fwixiipup%2Fwixiipup&label=souls&labelColor=%2353516b&countColor=%23c055b7&style=plastic)
 
-<img width="630" height="131" alt="Image" src="https://github.com/user-attachments/assets/7799d80b-a117-4256-a3d4-ae4d4c21fc9a" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<img width="3048" height="1400" alt="Image" src="https://github.com/user-attachments/assets/310a9001-a713-4a07-8ed8-cf1578d4305b" />
 
+<img width="2967" height="1400" alt="Image" src="https://github.com/user-attachments/assets/3c0ac053-53f5-4156-9de9-cd4f444bb676" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-[![name](https://github.com/user-attachments/assets/baca5888-6aa6-4369-bf4e-d7abe0a0f772)](https://wixiipuppys.straw.page)
+[![name](https://github.com/user-attachments/assets/ed8c4f4c-df4c-414d-bbb5-2066cbf20933)](https://wixiipuppys.straw.page)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&letterSpacing=-1px&duration=6000&pause=5&color=EABBE5&background=52525200&center=true&vCenter=true&repeat=false&width=500&height=20&lines=%E2%80%9C+Oh...+More...+More%2C+more!+More%2C+more%2C+more!+Do+it+harder!~+%E2%80%9D;%E2%80%9C+Hehehe...+Oh%2C+that+hungry+look...+it's+so+hot!~+%E2%80%9D;%E2%80%9C+The+only+one+who+can+satisfy+this+desolate+heart+is+...+you~+%E2%80%9D;%E2%80%9C+I+need+that+sweet%2C+sweet+ecstasy!~+%E2%80%9D;%E2%80%9C+Hm%3F+I'm+stalking+you%3F+Hehe.+There's+no+need+for+that+...+at+least%2C+not+yet~+%E2%80%9D)](https://git.io/typing-svg)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<img width="630" height="131" alt="Image" src="https://github.com/user-attachments/assets/4c6c4d59-8536-4764-b6f9-778a1d971f67" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&letterSpacing=-1px&duration=6000&pause=10&color=FFFFFF&background=52525200&center=true&vCenter=true&width=500&height=20&lines=Cause+my+insides+are+red%2C+and+yours+are+too;And+the+red+on+my+face+is+matching+you;And+goodness%2C+you're+bleeding%2C+what+a+wonderful+feeling;You're+down+and+you're+pleading%2C+my+head+is+just+reeling;The+red+means+I+love+you%2C+tasting+your+blood+means+I+love+you;The+red+means+I+love+you%2C+the+red+means+I+love+you)](https://git.io/typing-svg)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<img width="3048" height="1400" alt="Image" src="https://github.com/user-attachments/assets/468f0509-fdce-446a-a855-ff63a515c04d" />
+
+<img width="3048" height="1400" alt="Image" src="https://github.com/user-attachments/assets/741599e7-234e-41f0-a6df-5d0fbec969d1" />
