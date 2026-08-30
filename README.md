@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fwixiipup%2Fwixiipup&label=%3E.%3C&labelColor=%23f2d3e7&countColor=%23f3f9f5&style=flat-square&labelStyle=none)
+ㅤㅤㅤㅤㅤㅤㅤ ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fwixiipup%2Fwixiipup&label=%3E.%3C&labelColor=%23f2d3e7&countColor=%23f3f9f5&style=flat-square&labelStyle=none)
 
 
 [![name](https://github.com/user-attachments/assets/399b3e4e-d2b0-45ce-bcc6-b4332697c0c1)](https://wixiipuppys.straw.page)
